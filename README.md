@@ -1,0 +1,44 @@
+# Miley Cyrus – Adore You
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+VERSE ONE
+Baby baby
+Are you listening
+Where you been
+All my life
+I just started living
+Oh
+Baby
+Are you listening
+Oh
+CHORUS
+When you say you love me
+Know I love you more
+And when you say you need me
+Know I need you more
+Boy I adore
+You
+I adore
+You
+VERSE TWO
+Baby can you hear me
+When I'm calling out
+For you
+I'm scared
+Oh I'm
+So scared
+But when you're near me
+I feel like I'm standing with an army of men
+Armed with weapons
+Hey
+hey I
+CHORUS
+When you say you love me
+Know I love you more
+And when you say you need me
+Know I need you more
+I adore
+You
+```
